@@ -1,4 +1,4 @@
-# Ratinic
+# Ratanic
 
 ## Introdução
 
