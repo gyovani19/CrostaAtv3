@@ -38,7 +38,6 @@ Enquanto os ratos corriam, podiam ouvir o som distante dos humanos acima deles, 
 
 Finalmente, emergiram em uma rua tranquila, cercada por lojas e restaurantes. Eles ofegavam, cansados, mas também emocionados com a nova jornada que tinham pela frente. Juntos, olharam para o vasto mundo além do esgoto, prontos para explorar cada canto, determinados a viver tudo que aquela experiência pudesse lhes proporcionar.
 
-![imagem_rua](https://www.google.com/url?sa=i&url=https%3A%2F%2Fde.freepik.com%2Ffotos-premium%2Feine-dunkle-gasse-mit-einem-schild-auf-dem-pou-steht_40864482.htm&psig=AOvVaw24eovoh4_1HE_MhBxC_wYA&ust=1713647621067000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCKD59vuYz4UDFQAAAAAdAAAAABAR "Rua do beco")
 
 ### o Plano
 Em uma noite de exploração pelos becos da cidade, a gangue de ratos encontrou um mapa abandonado em um beco escuro. O mapa mostrava a localização de um restaurante de luxo. Intrigados com a possibilidade de um banquete, decidiram investigar.
