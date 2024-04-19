@@ -28,7 +28,7 @@ Foi durante uma exploração dos túneis que Cameron fez uma descoberta crucial:
 
 Essa descoberta não apenas fortaleceu a determinação do casal de escapar dos esgotos, mas também solidificou sua aliança com a gangue do esgoto, mostrando que, juntos, eles poderiam superar os desafios e alcançar a liberdade desejada. Com o carretel de barbante guiando seu caminho, Cameron e Luke continuaram sua jornada com renovada esperança e determinação, prontos para enfrentar o desconhecido em direção à superfície.
 
-### A superficie 
+### A superfície 
 Enquanto os ratos corriam, podiam ouvir o som distante dos humanos acima deles, os ruídos de carros passando e vozes ecoando pelas ruas. Esses sons eram como uma promessa distante de liberdade, um lembrete constante de que o mundo além dos túneis os aguardava.
 
 À medida que se aproximavam da superfície, as luzes dos estabelecimentos começou a brilhar difusa através das aberturas nas paredes do esgoto. Os ratos aceleraram o passo, suas esperanças renovadas pela visão da luz que representava a liberdade e o desconhecido.
@@ -36,7 +36,7 @@ Enquanto os ratos corriam, podiam ouvir o som distante dos humanos acima deles, 
 Finalmente, emergiram em uma rua tranquila, cercada por lojas e restaurantes. Eles ofegavam, cansados, mas também emocionados com a nova jornada que tinham pela frente. Juntos, olharam para o vasto mundo além do esgoto, prontos para explorar cada canto, determinados a viver tudo que aquela experiência pudesse lhes proporcionar.
 
 
-### O Plano
+### O plano
 Em uma noite de exploração pelos becos da cidade, a gangue de ratos encontrou um mapa abandonado em um beco escuro. O mapa mostrava a localização de um restaurante de luxo. Intrigados com a possibilidade de um banquete, decidiram investigar.
 
 Foi convocado uma reunião de emergência. Após analisarem o mapa, decidiram enviar um dos ratos da gangue para investigar o restaurante de cima.
