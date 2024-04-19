@@ -31,7 +31,7 @@ Essa descoberta não apenas fortaleceu a determinação do casal de escapar dos 
 ### A superfície 
 Enquanto os ratos corriam, podiam ouvir o som distante dos humanos acima deles, os ruídos de carros passando e vozes ecoando pelas ruas. Esses sons eram como uma promessa distante de liberdade, um lembrete constante de que o mundo além dos túneis os aguardava.
 
-À medida que se aproximavam da superfície, as luzes dos estabelecimentos começou a brilhar difusa através das aberturas nas paredes do esgoto. Os ratos aceleraram o passo, suas esperanças renovadas pela visão da luz que representava a liberdade e o desconhecido.
+À medida que se aproximavam da superfície, as luzes dos estabelecimentos começaram a brilhar difusa através das aberturas nas paredes do esgoto. Os ratos aceleraram o passo, suas esperanças renovadas pela visão da luz que representava a liberdade e o desconhecido.
 
 Finalmente, emergiram em uma rua tranquila, cercada por lojas e restaurantes. Eles ofegavam, cansados, mas também emocionados com a nova jornada que tinham pela frente. Juntos, olharam para o vasto mundo além do esgoto, prontos para explorar cada canto, determinados a viver tudo que aquela experiência pudesse lhes proporcionar.
 
