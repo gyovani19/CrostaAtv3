@@ -20,7 +20,7 @@ Após uma noite de observação, o integrante da gangue voltou com informações
 Com esses dados em mãos, a gangue de ratos traçou um plano meticuloso para desativar as câmeras de segurança, evitar armadilhas e invadir a despensa do restaurante em busca de comida deliciosa. E assim, a gangue de ratos partiu em direção ao restaurante, pronta para colocar seu plano em ação.
 
 ### Restaurante
-No dia fatídico do assalto a um restaurante abandonado, a gangue encontrou-se subitamente diante de um perigo mortal: um gato sorrateiro, com suas garras afiadas e dentes afiados, aguardava o momento perfeito para atacar. Em meio ao caos e à tensão, os ratos da gangue se viram lutando pela própria sobrevivência contra o felino feroz.
+No dia fatídico do assalto a um restaurante, a gangue encontrou-se subitamente diante de um perigo mortal: um gato sorrateiro, com suas garras afiadas e dentes afiados, aguardava o momento perfeito para atacar. Em meio ao caos e à tensão, os ratos da gangue se viram lutando pela própria sobrevivência contra o felino feroz.
 
 Luke, em um ato de coragem e determinação, liderou a resistência contra o gato, enfrentando-o com bravura ao lado de seus companheiros de gangue. Equipados com espadas e escudos improvisados feitos com materiais encontrados nos esgotos, os ratos enfrentaram o desafio mortal diante deles.
 
