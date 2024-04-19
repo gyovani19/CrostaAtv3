@@ -1,6 +1,6 @@
 
 
-<img align="center" style="margin-bottom:100px; object-fit: contain" width=30% src="https://i.gifer.com/3Bdp.gif" />
+<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="https://i.gifer.com/3Bdp.gif" />
 &nbsp;&nbsp;&nbsp;
 
 
