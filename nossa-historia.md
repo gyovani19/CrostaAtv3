@@ -17,7 +17,7 @@ Assim começa a saga do casal de ratos, cujo destino se entrelaça com os corred
 
 ![casal decidindo começar a jornada ](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDMxejBpdXhsbG5sMzR5YmQ3bHc2eGtncnQwNXVxdHRzZHU3aWs2biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3o7ZeI35wIOKq9vMe4/giphy.gif)
 
-###O labririnto 
+### O labririnto 
 Após alguns dias de sobrevivência, se adaptando aos ambientes úmidos e comendo alimentos improvisados dos corredores estreitos dos esgotos, os ratos perceberam que estavam em um labirinto. Era fácil se perder naqueles túneis sinuosos e escuros, onde cada curva podia esconder um novo perigo ou um beco sem saída. Mas para Cameron e Luke, essa jornada era uma questão de vida ou morte.
 
 Enquanto exploravam os labirintos em sua busca desesperada por uma saída para a superfície, o destino os colocou diante de uma situação inesperada: a gangue liderada por Stryker. Inicialmente, o encontro foi tenso, com os ratos da gangue olhando-os com desconfiança. No entanto, à medida que a conversa progredia, ficou claro que ambos os grupos compartilhavam um objetivo comum: escapar dos esgotos e encontrar uma vida melhor na superfície.
@@ -36,7 +36,7 @@ Enquanto os ratos corriam, podiam ouvir o som distante dos humanos acima deles, 
 Finalmente, emergiram em uma rua tranquila, cercada por lojas e restaurantes. Eles ofegavam, cansados, mas também emocionados com a nova jornada que tinham pela frente. Juntos, olharam para o vasto mundo além do esgoto, prontos para explorar cada canto, determinados a viver tudo que aquela experiência pudesse lhes proporcionar.
 
 
-###O Plano
+### O Plano
 Em uma noite de exploração pelos becos da cidade, a gangue de ratos encontrou um mapa abandonado em um beco escuro. O mapa mostrava a localização de um restaurante de luxo. Intrigados com a possibilidade de um banquete, decidiram investigar.
 
 Foi convocado uma reunião de emergência. Após analisarem o mapa, decidiram enviar um dos ratos da gangue para investigar o restaurante de cima.
@@ -61,7 +61,7 @@ A cena era de devastação e tragédia, com Cameron segurando o corpo sem vida d
 A morte de Luke teve um impacto profundo não apenas em Cameron, mas em toda a gangue, que se viu desarticulada sem seu integrante mais valioso. Cameron sentiu o peso da culpa por não ter revelado sua gravidez a Luke, agora ele nunca saberia que estava prestes a se tornar pai. Mas apesar da dor avassaladora da perda, ela sabia que precisava encontrar forças para seguir em frente, não apenas por ela mesma, mas pelo bebê que carregava dentro de si. Decidiu que, apesar das promessas da superfície, seu verdadeiro lar estava nos bueiros. Lá, entre os corredores familiares e os ecos conhecidos, ela encontraria sua coragem e criaria um lar seguro para seu filho, mantendo viva a memória de Luke.
 
 
-###Fim?
+### Fim?
 Cameron, cujo outrora foi branca, agora coberta de sangue, corre sem olhar para trás. À sua frente, um túnel que aparenta não ter fim. A escuridão consome tudo em volta dela, exceto pela luz vinda dos bueiros acima. Ela não olha para trás, não consegue, tem medo que os horrores que levaram seu amado ainda estejam a perseguindo. Luke cruza seus pensamentos por um momento, dói, ela relembra seus momentos bons, todas as vezes que ele arriscou a própria vida para salvá-la...
 
 *THUNK*
@@ -81,7 +81,7 @@ Ele, agora com a morte no olhar, encara o ratinho moribundo, rastejando e sangra
 O jacaré nota que enquanto ela diz isso, ela acaricia sua barriga com as patas dianteiras e ele percebe... Ele se afasta momentaneamente e abre a boca, a rata fecha os olhos esperando uma morte dolorida... Mas ela não vem. Uma mordida surpreendentemente gentil levanta a rata do chão, e em seguida a lança para cima, ela cai nas costas do jacaré, que segue em direção ao escuro, aparentemente levando Cameron para algum lugar. A rata surpresa abre os olhos. "Você luta bem para um rato, como é seu nome?"
 
 
-###A paz
+### Enfim, paz
 A partir daí, o jacaré cuidou das feridas da rata e eles formaram uma amizade que viria a abalar a estrutura de poder dentro dos esgotos da cidade inteira. Juntos, Cameron e Manny, assim chamado o jacaré, superaram as barreiras de suas espécies e encontraram uma conexão verdadeira baseada na compaixão e na sobrevivência mútua. Enquanto o jacaré, conhecido por sua ferocidade, agora demonstrava uma gentileza surpreendente, a rata aprendeu a confiar novamente, encontrando força na união inesperada.
 
 Com o passar do tempo, a dupla tornou-se uma lenda entre os habitantes dos esgotos, desafiando as normas estabelecidas e quebrando as fronteiras preconceituosas que separavam as diferentes criaturas. Sua amizade inspirou outros a questionarem as divisões profundamente enraizadas na sociedade subterrânea, promovendo a tolerância e a cooperação entre todas as criaturas, grandes e pequenas.
