@@ -1,3 +1,23 @@
+# Ratanic
+
+## Introdução
+
+Essa história é sobre Luke e Cameron, um casal de ratos que vivem nas zonas mais profundas de um labirinto de esgotos e que desde que nasceram
+e se conheceram desejam fugir dos esgotos na esperança de encontrar a superfície para conquistar uma vida tranquila com um ao lado do outro.
+
+O esgoto é cheio de criaturas traiçoeiras para os ratos, incluindo insetos como baratas e aranhas, tais criaturas que exigem que
+o casal precise se defender.
+
+![casal de ratos](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21mNWhvbTZuMmFkOHppYms4NHNhenlpNm94cHN4eTFwb2M4Y2Z5eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3o7bu2XqVEpK5AYf8k/giphy.gif)
+
+Mas esses não são os únicos obstáculos que enfrentam. O esgoto é um mar de lixo, onde os detritos da superfície fluem e se acumulam, formando ilhas de desespero e perigo. No entanto, para o casal destemido, esse lixo é mais do que apenas sujeira indesejada; é uma ferramenta para a sobrevivência e uma chance de avançar.
+
+Entre os restos de uma humanidade indiferente, os ratos encontram meios improvisados de locomoção e defesa, transformando o que para outros seria apenas desperdício em oportunidade. Eles utilizaram restos de lixos para criar equipamentos que pudessem ajuda-los nessa jornada como escudos, espadas e uma jangada que facilitasse a locomoção entre as ilhas no mar de lixo. Com coragem e engenhosidade, eles enfrentam cada desafio como uma oportunidade de aprendizado, cada obstáculo como um degrau em sua jornada rumo à liberdade.
+
+Assim começa a saga do casal de ratos, cujo destino se entrelaça com os corredores sombrios e as águas turvas dos esgotos, na busca incessante por uma vida além das sombras.
+
+![casal decidindo começar a jornada ](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDMxejBpdXhsbG5sMzR5YmQ3bHc2eGtncnQwNXVxdHRzZHU3aWs2biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3o7ZeI35wIOKq9vMe4/giphy.gif)
+
 ## Jornada
 ### o labririnto 
 Após alguns dias de sobrevivência, se adaptando aos ambientes húmidos e comendo alimentos improvisados dos corredores estreitos dos esgotos, os ratos perceberam que estavam em um labirinto. Era fácil se perder naqueles túneis sinuosos e escuros, onde cada curva podia esconder um novo perigo ou um beco sem saída. Mas para Cameron e Luke, essa jornada era uma questão de vida ou morte.
@@ -17,7 +37,7 @@ Enquanto os ratos corriam, podiam ouvir o som distante dos humanos acima deles, 
 
 Finalmente, emergiram em uma rua tranquila, cercada por lojas e restaurantes. Eles ofegavam, cansados, mas também emocionados com a nova jornada que tinham pela frente. Juntos, olharam para o vasto mundo além do esgoto, prontos para explorar cada canto, determinados a viver tudo que aquela experiência pudesse lhes proporcionar.
 
-![imagem_rua](./imagem_rua.jpeg "Rua do beco")
+![imagem_rua](https://www.google.com/url?sa=i&url=https%3A%2F%2Fde.freepik.com%2Ffotos-premium%2Feine-dunkle-gasse-mit-einem-schild-auf-dem-pou-steht_40864482.htm&psig=AOvVaw24eovoh4_1HE_MhBxC_wYA&ust=1713647621067000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCKD59vuYz4UDFQAAAAAdAAAAABAR "Rua do beco")
 
 ### o Plano
 Em uma noite de exploração pelos becos da cidade, a gangue de ratos encontrou um mapa abandonado em um beco escuro. O mapa mostrava a localização de um restaurante de luxo. Intrigados com a possibilidade de um banquete, decidiram investigar.
