@@ -89,4 +89,5 @@ A partir daí, o jacaré cuidou das feridas da rata e eles formaram uma amizade 
 
 Com o passar do tempo, a dupla tornou-se uma lenda entre os habitantes dos esgotos, desafiando as normas estabelecidas e quebrando as fronteiras preconceituosas que separavam as diferentes criaturas. Sua amizade inspirou outros a questionarem as divisões profundamente enraizadas na sociedade subterrânea, promovendo a tolerância e a cooperação entre todas as criaturas, grandes e pequenas.
 
-Cameron e Manny lideraram juntos, enfrentando desafios e oposição, mas sempre permanecendo unidos em sua missão de criar um ambiente mais justo e igualitário para todos os habitantes dos esgotos. Seu legado perduraria por gerações, lembrado como um símbolo de
+Cameron e Manny lideraram juntos, enfrentando desafios e oposição, mas sempre permanecendo unidos em sua missão de criar um ambiente mais justo e igualitário para todos os habitantes dos esgotos. Seu legado perduraria por gerações, lembrado como um símbolo de coragem, amizade e esperança em meio à escuridão.
+
