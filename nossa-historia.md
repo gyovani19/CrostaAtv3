@@ -65,5 +65,4 @@ A morte de Luke teve um impacto profundo não apenas em Cameron, mas em toda a g
 
 
 
-Assim começa a saga do casal de ratos, cujo destino se entrelaça com os corredores sombrios e as águas turvas dos esgotos, na busca incessante por uma vida além das sombras.
 
