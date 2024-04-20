@@ -18,8 +18,6 @@ Ele, agora com a morte no olhar, encara o ratinho moribundo, rastejando e sangra
 
 O jacaré nota que enquanto ela diz isso, ela acaricia sua barriga com as patas dianteiras e ele percebe... Ele se afasta momentaneamente e abre a boca, a rata fecha os olhos esperando uma morte dolorida... Mas ela não vem. Uma mordida surpreendentemente gentil levanta a rata do chão, e em seguida a lança para cima, ela cai nas costas do jacaré, que segue em direção ao escuro, aparentemente levando Cameron para algum lugar. A rata surpresa abre os olhos. "Você luta bem para um rato, como é seu nome?"
 
-
-
 A partir daí, o jacaré cuidou das feridas da rata e eles formaram uma amizade que viria a abalar a estrutura de poder dentro dos esgotos da cidade inteira. Juntos, Cameron e Manny, assim chamado o jacaré, superaram as barreiras de suas espécies e encontraram uma conexão verdadeira baseada na compaixão e na sobrevivência mútua. Enquanto o jacaré, conhecido por sua ferocidade, agora demonstrava uma gentileza surpreendente, a rata aprendeu a confiar novamente, encontrando força na união inesperada.
 
 Com o passar do tempo, a dupla tornou-se uma lenda entre os habitantes dos esgotos, desafiando as normas estabelecidas e quebrando as fronteiras preconceituosas que separavam as diferentes criaturas. Sua amizade inspirou outros a questionarem as divisões profundamente enraizadas na sociedade subterrânea, promovendo a tolerância e a cooperação entre todas as criaturas, grandes e pequenas.
